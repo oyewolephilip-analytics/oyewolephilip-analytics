@@ -1,4 +1,4 @@
-## Philip Oyewole
+## Oyewole Philip
 
 Risk-Focused Data Analyst | Excel • SQL • Python • Power Bi • Financial & Market Risk Analytics
 
